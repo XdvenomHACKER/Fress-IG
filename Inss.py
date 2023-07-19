@@ -1,1 +1,1 @@
-print("sc nya udah di hapus jika ingin mintak chat 083850999591")
+print("yang Mau beli Tools crack Instagram 083892786429")
